@@ -1,1 +1,1 @@
-Hey if you want check it out more about just click the following link
+Hey if you want check it out more about just run this little project
